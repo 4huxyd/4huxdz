@@ -1,12 +1,11 @@
-# # :sparkles::sparkles:四虎影院APP永久地址发布:sparkles::sparkles:
+ # :sparkles::sparkles:四虎影院APP永久地址发布:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ： https://sihuxdy.pages.dev/a1 
+ :heart: :point_right: 【最新地址1】 ： https://sihuxdr.pages.dev/a1 (点击打开，即可观看，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ： https://sihuxdy.pages.dev/a2
+ :heart: :point_right: 【最新地址2】 ： https://sihuxdr.pages.dev/a2 (点击打开，即可观看，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ： https://sihuxdy.pages.dev/a3 
+ :heart: :point_right: 【最新地址3】 ： https://sihuxdr.pages.dev/a3 (点击打开，即可观看，看完记得收藏)
  ------
-
 
 #### （复制地址到浏览器中打开）：
 # :sparkles:重要提醒:sparkles:收藏本页面，避免迷路！
